@@ -1,7 +1,7 @@
 <h1>&nbsp;Top 4 Các loại trà ngon nhất Việt Nam khiến bạn ngất ngây</h1>
 
 <div class="reblog-content">
-<p>Phương đông là cái nôi của văn hóa trà và Việt Nam cũng nằm trong số đó. Văn hóa trà của Việt Nam xuất hiện từ thế kỷ thứ 9. Cách thưởng trà của người Việt không cầu kỳ đặc biệt như người Trung Quốc hay Nhật Bản, mà rất bình dị, chân chất mộc mạc như chính nền văn minh nông nghiệp của người Việt. Bài viết dưới đây sẽ cho các bạn cái nhìn tổng hợp về <em><strong><a href="https://github.com/shanamtra/tra-ngon-nhat-viet-nam.html">các loại </a><a href="https://t.umblr.com/redirect?z=https%3A%2F%2Fwww.linkedin.com%2Fpulse%2Fcac-loai-tra-ngon-nhat-viet-nam-tra-shanam&amp;t=ZWQ1YzU2MjNjYzM3Y2M5ODdlNDY5MWZmZjBmYmJmNzk3ZDM0NjlmMSx6UldiZUc2dQ%3D%3D&amp;p=&amp;m=0">trà ngon nhất Việt Nam</a></strong></em>. Cách bạn cùng đọc và cảm nhận nhé.</p>
+<p>Phương đông là cái nôi của văn hóa trà và Việt Nam cũng nằm trong số đó. Văn hóa trà của Việt Nam xuất hiện từ thế kỷ thứ 9. Cách thưởng trà của người Việt không cầu kỳ đặc biệt như người Trung Quốc hay Nhật Bản, mà rất bình dị, chân chất mộc mạc như chính nền văn minh nông nghiệp của người Việt. Bài viết dưới đây sẽ cho các bạn cái nhìn tổng hợp về <a href="https://github.com/shanamtra/tra-ngon-nhat-viet-nam.html/"><em><strong>các loại trà ngon nhất Việt Nam</strong></em></a>. Cách bạn cùng đọc và cảm nhận nhé.</p>
 
 <h2>Trà Shan Tuyết Tây Bắc</h2>
 
